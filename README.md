@@ -1,4 +1,4 @@
-### Hi there 👋 Iam Edgar Silva :man_technologist:
+### Hi there 👋 I am Edgar Silva :man_technologist:
 
 Here are some ideas to get you started:
 
